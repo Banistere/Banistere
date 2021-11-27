@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Banistere
+- 👋 Hi, I’m @Banitere
 - 👀 I’m interested in ... whatever interesting... basically anything boring... generally making music, carry on event, projects! 
 - 🌱 I’m currently learning ... More like working on bot and website dynamicle in many ways~
 - 💞️ I’m looking to collaborate on ... nothing... for now
